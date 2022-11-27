@@ -19,6 +19,6 @@
 
 *Badaya, Srishti*
 
-*Ramakrishnan Sunthar, Hari*
+*Ramakrishnan Sudhakar, Hari*
 
 *Sarnaik, Spruha*
